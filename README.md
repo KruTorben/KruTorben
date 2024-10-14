@@ -4,3 +4,5 @@
 - 📫 How to reach me email ( savetorben@gmail.com or kruismanntorben@gmail.com )
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: if you learn code You learn code
+- i am into woman
+- i love Rats they are so cute
